@@ -1,2 +1,2 @@
-# Kensha_No_Mura
-※全部フィクション
+# Kenja_No_Mura
+※現實版動物園
